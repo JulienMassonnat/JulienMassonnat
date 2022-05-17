@@ -20,5 +20,3 @@ I am currently the founder of Mesh Communication a communication agency.
 
 I am also Communication and Marketing Manager at OKP4.
 
-I l
-
