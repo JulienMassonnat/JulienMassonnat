@@ -14,9 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+linkedin 
+
 I am an Agriculture Engineer 🌻 specialised in communication and digital tools (website, social networks, graphic design, etc.).
 
-I am currently the founder of Mesh Communication a communication agency 
+I am currently the founder of Mesh Communication a communication agency.
 
-I am also Communication and Marketing Manager at OKP4
+I am also Communication and Marketing Manager at OKP4.
+
+I l
 
