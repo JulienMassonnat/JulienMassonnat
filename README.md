@@ -14,9 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I am the Head of Communication and Marketing Manager at Axone.
+
 I am an Agriculture Engineer 🌻 specialised in communication and digital tools (website, social networks, graphic design, etc.).
 
-I am currently the founder of RN20 (https://rn20.digital) a communication agency.
+Founder of [RN20](https://rn20.digital) a communication agency specialized in agriculture, wineculture, and food and also co-founder of [Axone](https://axone.xyz), the orchestration layer for AI
 
-I am also Communication and Marketing Manager at OKP4.
 
